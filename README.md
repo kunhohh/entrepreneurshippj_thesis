@@ -1,1 +1,0 @@
-# entrepreneurshippj_thesis
